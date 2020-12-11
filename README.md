@@ -1,2 +1,2 @@
 # Resume
-Please see the pdf inside for resume.
+Please see the word document inside for resume.
